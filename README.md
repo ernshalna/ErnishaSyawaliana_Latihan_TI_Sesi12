@@ -1,0 +1,1 @@
+# ErnishaSyawaliana_Latihan_TI_Sesi12
